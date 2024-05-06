@@ -11,4 +11,3 @@ Mathematics 271 or 273; and Philosophy 279 or 377; and 3 units from Computer Sci
 
 Instructor: Joel Reardon  
 TA:   
-Overall grade: A-  
